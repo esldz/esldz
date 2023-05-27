@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏫 I am high school student.<br>👩‍💻 I have been interested in technology since ıIwas little.<br>🔍 I like to learn and research by myself.
+🏫 I am high school student.<br>👩‍💻 I have been interested in technology since I was little.<br>🔍 I like to learn and research by myself.
 
 
 ## 🌐 Socials:
